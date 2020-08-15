@@ -1,0 +1,1 @@
+# TecnicasDeDeteccionCovid19Equipo20
